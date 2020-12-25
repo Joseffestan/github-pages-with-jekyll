@@ -1,4 +1,4 @@
-# Welcome to my blog
+# Welcome to my WC
 
-I'm glad you are here. I plan to talk about ...
+get out of here ...
 Holyshit
